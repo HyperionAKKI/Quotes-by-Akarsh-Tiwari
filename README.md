@@ -3,7 +3,7 @@ my quotes\ my thoughts
 
 ## ✍️ Quotes by Akarsh Tiwari
 
-- **“Speek more get heard less, Speak less get heard more.”**  
+- **“Speak more get heard less, Speak less get heard more.”**  
   — **Akarsh Tiwari** (29 Jan 2026)
 
 - **“I envy your weakness, it frees you from responsibilities.”**  
